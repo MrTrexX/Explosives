@@ -1,1 +1,1 @@
-These are just a programs that contains exlosives. Be careful or you may get injured
+These are just a programs that contain exlosives. Be careful or you may get injured
